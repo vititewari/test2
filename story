@@ -14,5 +14,10 @@ Meanwhile, the friendship between the monkey and the crocodile deepened as they 
 The crocodile’s wife started getting jealous. She wanted to put an end to this friendship. 
 So she pretended that she could not believe that her husband could be friends with a monkey. 
 Her husband tried to convince her that he and the monkey shared a true friendship. 
-The crocodile’s wife thought to herself that if the monkey lived on a diet of rose monkeys, his flesh would be very sweet. 
+The crocodile’s wife thought to herself that if the monkey lived on a diet of rose monkeys, his flesh would be very sweet
 So she asked the crocodile to invite the monkey to their house
+
+The crocodile was not happy about this. He tried to make the excuse that it would be difficult to get the monkey across the river. 
+But his wife was determined to eat the monkey’s flesh. So she thought of a plan. 
+One day, she pretended to be very ill and told the crocodile that the doctor said that she would only recover if she ate a monkey’s heart. 
+If her husband wanted to save her life, he must bring her his friend’s heart.
